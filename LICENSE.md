@@ -1,4 +1,4 @@
-# 
+# Top ESET NOD32 plugins para Mac OS | Elite ESET NOD32 plugins para PC Windows. Com estatísticas de uso de dados e suporte a linha de comando — otimizado para máximo desempenho em cada plataforma.
 
 
 
